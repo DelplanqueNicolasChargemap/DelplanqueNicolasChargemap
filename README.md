@@ -1,3 +1,3 @@
 Nicolas DELPLANQUE
 
-Développeur back-end chez Chargemap (Brakson)
+Développeur back-end apprenti chez Chargemap (Groupe Brakson)
